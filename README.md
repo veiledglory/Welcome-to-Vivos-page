@@ -19,8 +19,5 @@ right.....its cool isnt it laughs maniacally
 u jst....add me on discord. tell me what u want and u get one? duh! 
 # do this cringe mf gets payment?
 if u want ofc....twin give me a dollar? plea?
-# what do i take as payment?
-- wuwa top ups 0,99-15 dollar ones.
-- decos on dc too. hahah....
 # "do i get free ones...?"
 YES!!! YES U DO!!! just be kind to me im a busy human being...!!!
